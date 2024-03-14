@@ -1,1 +1,1 @@
-Úklid ve widlích :) klasika davkový soubor :) staré časy, textových her.
+Úklid ve widlích :) klasika davkový soubor :) vzpomínka na staré časy, textových her.
